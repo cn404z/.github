@@ -1,1 +1,1 @@
-# [MiawoCat's Website](https://www.404z.cn/)
+# [MiaowCat's Website](https://404z.cn/)
